@@ -1,0 +1,1 @@
+# YAKeyboard-Privacy-Policy
